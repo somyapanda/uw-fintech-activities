@@ -23,7 +23,6 @@ So far, today has been all about course introductions and lectures. Now it's tim
 
 
 
-Write down your answers and keep them somewhere safe. In the future, we will look back at your responses to see how much you've accomplished!
 
 ---
 
